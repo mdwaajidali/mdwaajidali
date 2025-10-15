@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **Linux,Operating Systems,Javascript,CSS,**
 
-- 📫 How to reach me **2100090052@kluniversity.in**
+- 📫 How to reach me **mdwaajid02@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
